@@ -349,7 +349,7 @@
 * [odysee](https://odysee.com/)
 * [Playeur](https://playeur.com/)
 * [Rumble](https://rumble.com/)
-
+* [newasiantv](https://newasiantv.store/)
 ***
 
 # ► Live TV / Sports
