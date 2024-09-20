@@ -126,7 +126,7 @@
 * [MP4Mania](https://mp4mania1.net/) - Movies / 360p / [How to Use](https://files.catbox.moe/53xfma.mp4)
 * [Flixtor](https://flixtor.to/) - Movies / TV / 720p / Movies Older Than 6 Months For Premium Only
 * [JustWatch](https://www.justwatch.com/) - Search Legal Streaming Hosts
-
+* [watchseries1](https://www.watchseries1.video/)) 
 ***
 
 ## ▷ Anime Streaming
